@@ -1,3 +1,3 @@
-## Welcome to Qi Junyang's Pages
+## The Blog is Currently Under Construction
 
-The blog is under construction
+
